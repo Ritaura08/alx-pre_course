@@ -1,1 +1,1 @@
-Yay! Girl Power
+girl power
